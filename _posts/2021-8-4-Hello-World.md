@@ -16,6 +16,6 @@ I have always been more of a writer than talker, even though it's sometimes equa
 Funnily enough, I've always wanted to blog, but never really got a hang of it enough to make it a habit. I can be a pretty prolific writer, but for some reason everything else _around_ blogging has often felt bit of a drag. I have intensely hated most blogging platforms and channels and it seems that most of the time goes to nitpicking of a Wordpress layout, obsessing over #hastags and styles to choose or pulling my hair out with some useless technical issue and stressing over a good coverage - anything except the thing I would really like to do.
 
 So, with this new thing I would like to get back to basics by
-1) Doing this for me. It's cool if someone reads something here and even so let me know if they like it, but this is supposed to be my space. For me.
-2) Keeping it simple. Short posts without huge images, simplistic style and structure. It's likely that I'll break something here, but I try not to stress about it.
-3) Trying to make a habit out of it. Not stressing, but really pursuing regular post intervall this time. Luckily I have a huge backlog of books and stuff to noodle about.
+1. Doing this for me. It's cool if someone reads something here and even so let me know if they like it, but this is supposed to be my space. For me.
+2. Keeping it simple. Short posts without huge images, simplistic style and structure. It's likely that I'll break something here, but I try not to stress about it.
+3. Trying to make a habit out of it. Not stressing, but really pursuing regular post intervall this time. Luckily I have a huge backlog of books and stuff to noodle about.
