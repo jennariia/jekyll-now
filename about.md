@@ -12,7 +12,7 @@ I might write about:
 - Agile software development and project management
 - The usuall stuff about ICT working life and stuff I wonder or like about*
 
-*The Other Stuff I like:
+The Other Stuff I like:
 Paper, inks, notebooks, pens, post-it notes and other analog art and note-taking paraphernalia. 
 Books, both fiction and non-, also comics. Non-fiction books will get their own section, I love to have professional reading in paper format.
 Cats, I have 2.
